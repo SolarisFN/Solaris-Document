@@ -16,3 +16,10 @@ https://github.com/user-attachments/assets/d393c19c-2626-45c3-b504-0337a646162e
 His statement supports the two recordings that capture Wesley saying the slur, providing evidence of repeated offensive language.
 
 ![447268980-da922b72-e4e8-4718-97a1-b69c633252c9](https://github.com/user-attachments/assets/2fa84453-cbf2-44f8-9306-bce5cea36673)
+
+### Wesley saying the N-Word
+![w2](https://github.com/user-attachments/assets/6593e7f0-6bef-4aa2-b013-8eee040848db)
+
+*(Look at the bottom)*
+
+![w1](https://github.com/user-attachments/assets/5dcf2b5b-b921-45cc-a272-d7718b27cb66)

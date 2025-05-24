@@ -21,5 +21,7 @@ His statement supports the two recordings that capture Wesley saying the slur, p
 ![w2](https://github.com/user-attachments/assets/6593e7f0-6bef-4aa2-b013-8eee040848db)
 
 *(Look at the bottom)*
-
+<br>
 ![w1](https://github.com/user-attachments/assets/5dcf2b5b-b921-45cc-a272-d7718b27cb66)
+
+![w3](https://cdn.discordapp.com/attachments/1356066824646688859/1375942985530740926/image.png?ex=68338643&is=683234c3&hm=09d481a89989d9c92d30424efe4cceb7396d74e8308dd12e92091a9c6ee2d66e&)

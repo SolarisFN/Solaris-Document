@@ -3,4 +3,4 @@ This archive contains a collection of resources developed over time by the Solar
 There is **no license** attached to any of the code, and **no permission is required** to use it. It's completely free to use, modify, or build on.
 
 - 🔓 **Password:** *Solaris is a rat*
-- 📁 **[Download here](https://files.catbox.moe/3ygfzo.rar)**
+- 📁 **[Download here](https://cdn.solanis.cc/Tiva's%20Sources.rar)**

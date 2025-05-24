@@ -23,3 +23,6 @@ His statement supports the two recordings that capture Wesley saying the slur, p
 *(Look at the bottom)*
 
 ![w1](https://github.com/user-attachments/assets/5dcf2b5b-b921-45cc-a272-d7718b27cb66)
+
+### Wesley sending racist songs and using the N-word to discriminate against someone.
+![image](https://github.com/user-attachments/assets/ab3a56c8-5d3d-4cbe-a3c5-1385c77b3480)

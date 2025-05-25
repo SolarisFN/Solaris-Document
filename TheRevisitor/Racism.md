@@ -9,6 +9,8 @@ he sent a GIF with the caption "here, here n\*\*\*a," which contains a racial sl
 ---
 
 ### TheRevisitor made racist and Nazi-related remarks, including saying "Heil Hitler"
+- He claims it was *“inspected”* but I highly doubt that’s the case given the hate and behavior he’s brought into the community. The person reading this can decide whether it’s real or not but the fact is, the screenshot exists. And based on his history, it’s unfortunately not far off from who he really is.
+  
 ![togif](https://github.com/user-attachments/assets/8ea325df-69c0-4f66-9f0c-30d583153188)
 
 ---

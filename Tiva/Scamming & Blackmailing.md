@@ -14,3 +14,10 @@ After purchasing an item, the player lost access to their account a few weeks la
 A former Solaris dev claims Tiva blackmailed another team member using personal info to cover funds owed for a final payment linking it to a dispute over leaked Season 21 server code.
 
 ![447023480-2e829b0a-4861-453d-857c-d546f5b0216c](https://github.com/user-attachments/assets/cb54239e-a1ca-4624-93b9-f82f56ac5c24)
+
+---
+
+## Tiva abusing power over a personal disagreement
+According to Lixy, Tiva blocked and demoted him over a $10 decision that Tiva agreed to himself. Instead of resolving it properly, Tiva attempted to ban Lixy shortly after.
+
+![image](https://github.com/user-attachments/assets/6e468ab7-b503-4ccf-b6ef-ec7566d10f0b)

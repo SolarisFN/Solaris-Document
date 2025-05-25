@@ -10,6 +10,12 @@
 
 ---
 
+(*Claiming the project is unsafe, yet still playing it?*)
+
+![image](https://github.com/user-attachments/assets/7b72b5ef-84b9-4eff-b72a-f4e2ba7f0f1e)
+
+---
+
 ![446803255-1d01f0fb-6dfa-4265-82d8-2438c6739631](https://github.com/user-attachments/assets/f17cc160-74e0-4ee6-93e1-8449803fcd81)
 
 ---

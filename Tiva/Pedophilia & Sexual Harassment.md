@@ -1,4 +1,4 @@
-## Tiva made inappropriate comments, stating in one instance that a girl is perfect at 9, and in another, saying she is 12.
+yeah## Tiva made inappropriate comments, stating in one instance that a girl is perfect at 9, and in another, saying she is 12.
 
 ![446748862-90a150ae-7cf8-4f77-ac2b-8d6eac20683f](https://github.com/user-attachments/assets/f1b56b8e-9caa-49ef-bad2-71ef781e60e1)
 
@@ -21,3 +21,9 @@
 ---
 ## Tiva sending the yum emoji reacting to a revealing image of a girl posted on TikTok.
 ![446571704-2a014928-e77a-4c74-b71e-0e9cf1eb9400](https://github.com/user-attachments/assets/3ea61cb5-99bb-4e1f-aaa9-d49a1391c513)
+
+---
+## Tiva sharing inappropriate content
+He sent a file with a name that is clearly inappropriate and unacceptable, especially in a server with kids of all ages.
+
+![image](https://github.com/user-attachments/assets/f471eba3-0be8-47a4-9c3e-d067f397ab00)

@@ -1,4 +1,4 @@
-yeah## Tiva made inappropriate comments, stating in one instance that a girl is perfect at 9, and in another, saying she is 12.
+## Tiva made inappropriate comments, stating in one instance that a girl is perfect at 9, and in another, saying she is 12.
 
 ![446748862-90a150ae-7cf8-4f77-ac2b-8d6eac20683f](https://github.com/user-attachments/assets/f1b56b8e-9caa-49ef-bad2-71ef781e60e1)
 

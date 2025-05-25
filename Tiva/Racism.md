@@ -9,6 +9,12 @@
 ![446569835-8009a4a0-21d1-4efc-9524-33bebccd3a80](https://github.com/user-attachments/assets/47a8e8a6-cdd9-40d2-8202-954e03a46869)
 
 ---
+
+### The owner of Solaris, Tiva, made racist remarks and used a nuking bot to harass others
+![image](https://github.com/user-attachments/assets/74d99dc4-ed8e-405d-a93d-9debd9a48915)
+
+---
+
 ### Tiva has been adding inappropriate text in his API responses.
 Some of the messages included racial slurs, such as the N-word, and explicit content like “stick a dil** up your a**,” which is extremely offensive and unacceptable.
 

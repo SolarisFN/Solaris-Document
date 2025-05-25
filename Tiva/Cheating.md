@@ -12,3 +12,10 @@ Tiva was recorded using external exploits through a separate backend to log into
 caught cheating on an OG Fortnite private server, EZFN. He used someone else's name, `rio.dev`, while cheating and ended up slandering them when in reality, he was the one cheating all along.
 
 [Tiva Cheating on EZFN](https://github.com/user-attachments/assets/a4316977-24df-4ede-b7bd-b90765855046)
+
+---
+
+## Tiva threatening to create a bypass on Epic Hosting
+He initially threatened the owners and players by saying he would create a bypass. Even if it was meant as a joke, the owners didn’t find it funny and took it seriously. Unfortunately, the server was shut down.
+
+![image](https://github.com/user-attachments/assets/48adecc9-c29e-4852-b2ba-f4cc656c5881)

@@ -14,6 +14,12 @@ caught cheating on an OG Fortnite private server, EZFN. He used someone else's n
 [Tiva Cheating on EZFN](https://github.com/user-attachments/assets/a4316977-24df-4ede-b7bd-b90765855046)
 
 ---
+### Reverse-Engineered Exploit for Eon
+Tiva has published a file titled `Cheating.md`, which contains a step-by-step guide to injecting and bypassing Eon’s client. This is not general research it's a **deliberate and targeted attack** on Eon, aimed at exploiting and compromising the project directly.
+
+![image](https://github.com/user-attachments/assets/091052d6-a092-4688-8409-1bfaaf6c9970)
+
+---
 
 ## Tiva threatening to create a bypass on Epic Hosting
 He initially threatened the owners and players by saying he would create a bypass. Even if it was meant as a joke, the owners didn’t find it funny and took it seriously. Unfortunately, the server was shut down.

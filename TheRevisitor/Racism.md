@@ -10,3 +10,10 @@ he sent a GIF with the caption "here, here n\*\*\*a," which contains a racial sl
 
 ### TheRevisitor made racist and Nazi-related remarks, including saying "Heil Hitler"
 ![togif](https://github.com/user-attachments/assets/8ea325df-69c0-4f66-9f0c-30d583153188)
+
+---
+
+### TheRevisitor then made a violent and racist comment
+He said he had shot a Black African boy and used the N-Word with the hard R.
+
+![togif](https://github.com/user-attachments/assets/36b6c574-1110-4f12-878f-f020cd8ab292)

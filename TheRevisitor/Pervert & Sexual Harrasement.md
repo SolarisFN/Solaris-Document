@@ -23,3 +23,8 @@ They sent a message containing "I'll cum deep inside you," which is vulgar, disr
 They said, "drinking semen is like drinking water because it's 80% water," which is crude and unnecessary.
 
 ![447266205-4df0ee79-ad64-4311-be77-597203db4326](https://github.com/user-attachments/assets/050d73cf-1f25-4278-a1cb-5b6de181eb39)
+
+---
+#### Disgusting. This can be read through regardless of the intent even if it was meant as a joke, it's pedophilia and simply not funny. I don't understand how anyone could laugh at this or even start a conversation like this, joking or not. You must be sick in the head.
+
+![image](https://github.com/user-attachments/assets/2b507365-fab9-445b-8386-69a1398a6a5c)

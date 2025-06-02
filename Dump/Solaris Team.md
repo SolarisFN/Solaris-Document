@@ -93,6 +93,9 @@
 ---
 
 ## *(Solaris Developer)*
+
+![image](https://github.com/user-attachments/assets/3c0b79fe-4eae-4a5a-9ee7-4f949e8a102a)
+
 ![image](https://github.com/user-attachments/assets/3ac8ec88-79cb-41d4-97f7-2ef2e50c7838)
 
 ---

@@ -27,3 +27,7 @@
 He sent a file with a name that is clearly inappropriate and unacceptable, especially in a server with kids of all ages.
 
 ![image](https://github.com/user-attachments/assets/f471eba3-0be8-47a4-9c3e-d067f397ab00)
+
+---
+
+![image](https://github.com/user-attachments/assets/af6eb0d4-dccb-4ed2-b241-868f1f907502)

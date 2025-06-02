@@ -8,6 +8,10 @@ Coming from someone who has been running a respected project for over **three ye
 
 ![image](https://github.com/user-attachments/assets/0248e4f9-606e-40c2-a8f7-92676a1ff041)
 
+### *(Little Extra Content*)
+
+![image](https://github.com/user-attachments/assets/12ffac4d-f0dd-4366-ad33-d2f9fc4ec2d1)
+
 ---
 
 ## Owner and Founder of Retrac Admits It's Skidded

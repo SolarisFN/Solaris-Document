@@ -28,3 +28,7 @@ They said, "drinking semen is like drinking water because it's 80% water," which
 #### Disgusting. This can be read through regardless of the intent even if it was meant as a joke, it's pedophilia and simply not funny. I don't understand how anyone could laugh at this or even start a conversation like this, joking or not. You must be sick in the head.
 
 ![image](https://github.com/user-attachments/assets/2b507365-fab9-445b-8386-69a1398a6a5c)
+
+---
+
+![image](https://github.com/user-attachments/assets/3d156a0f-c4ab-47f6-a122-75319256783e)

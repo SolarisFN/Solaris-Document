@@ -12,4 +12,5 @@ This document covers serious issues caused by the **Solaris** group, an OG Fortn
 * [x] **Pedophilia** *(Extremely serious behavior involving minors that cannot be ignored.)*
 * [x] **Scamming** *(Providing promised content or perks to a donator, then later removing or revoking them without reason.)*
 
-> ***Note:*** People who were involved in these actions are named in this document. Some helpers who contributed asked to remain anonymous for their safety or peace of mind. Their names have been hidden and we fully respect their privacy.
+> [!NOTE]
+> ***People who were involved in these actions are named in this document. Some helpers who contributed asked to remain anonymous for their safety or peace of mind. Their names have been hidden and we fully respect their privacy.***

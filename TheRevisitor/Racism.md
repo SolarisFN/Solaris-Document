@@ -19,3 +19,11 @@ he sent a GIF with the caption "here, here n\*\*\*a," which contains a racial sl
 He said he had shot a Black African boy and used the N-Word with the hard R.
 
 ![togif](https://github.com/user-attachments/assets/36b6c574-1110-4f12-878f-f020cd8ab292)
+
+---
+
+![image](https://github.com/user-attachments/assets/3e468f56-bcda-4b90-8fb8-c0e71bbb92be)
+
+---
+
+![image](https://github.com/user-attachments/assets/4528a4a8-9697-42af-a016-313d2d575dfc)

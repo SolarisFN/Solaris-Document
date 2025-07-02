@@ -1,3 +1,11 @@
+## Solaris Exit Scam
+
+Tiva launches a new OG Fortnite server and resumed development, despite previously stating that he was *"quitting the community for good."* This statement was false. He has made similar claims in the past across multiple server projects, often leading to exit scams. These repeated incidents have resulted in donators losing access to their perks and the funds they contributed, with the benefits ultimately going to the server owners themselves.
+
+![image](https://github.com/user-attachments/assets/16257a03-d268-4b2d-8e76-9464e9aa642c)
+
+---
+
 ## The founder of Solaris, Tiva, scammed a player
 After purchasing an item, the player lost access to their account a few weeks later. When they contacted support to request a refund, the request was denied and the player was banned.
 

@@ -32,3 +32,12 @@ They said, "drinking semen is like drinking water because it's 80% water," which
 ---
 
 ![image](https://github.com/user-attachments/assets/3d156a0f-c4ab-47f6-a122-75319256783e)
+
+---
+
+![image](https://github.com/user-attachments/assets/eb431e74-360d-453f-8236-3c5f7725c291)
+
+---
+
+![image](https://github.com/user-attachments/assets/d0a3ddef-5781-49fd-a8b7-6b9ff9c1b087)
+
